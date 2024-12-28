@@ -13,7 +13,7 @@ A work visa allows foreign nationals to work in Canada for a specific employer, 
 
 1.  Open Work Permission: This gives the suppleness to work for any employer (except those listed as unfair). Examples are allowed under the Post-Graduation Work Permit Program (PGWP) or for spouses of skilled workers.
     
-
+![Work Visa Canada from India](work-visa-from-canada.jpg)
 
   
   
